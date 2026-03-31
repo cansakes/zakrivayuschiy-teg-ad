@@ -1,1 +1,1 @@
-https://github.com/cansakes/slozhno-sosredotochitsya-ad
+https://github.com/cansakes/zakrivayuschiy-teg-ad
